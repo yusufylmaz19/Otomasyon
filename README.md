@@ -1,2 +1,2 @@
 # Otomasyon
-https://youtu.be/zdQLLEJvmfE
+ https://youtu.be/eCN8tbZX4mo
